@@ -8,4 +8,4 @@
 
 ### 信箱
 📫 leeajay831@gmail.com \
-📫 4134213142@m365.fju.edu.tw
+📫 413421314@m365.fju.edu.tw
